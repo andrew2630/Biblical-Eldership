@@ -14,6 +14,106 @@ markmap:
 
 # Strauch, Alexander. ***Biblical Eldership. Restoring the Eldership to its Rightful Place in the Local Church***
 
+[**Abbreviations**](#abbreviations)
+
+[**Preface**](#preface)
+
+[**Introduction**](#introduction)
+
+**RESTORING NEW TESTAMENT ELDERSHIP**
+
+[***Chapter 1* | New Principles for Leadership**](#chapter-1--new-principles-for-leadership)
+
+[***Chapter 2* | Pastoral Leadership**](#chapter-2--pastoral-leadership)
+
+[***Chapter 3* | Shared Leadership**](#chapter-3--shared-leadership)
+
+[***Chapter 4* | Qualified Leadership**](#chapter-4--qualified-leadership)
+
+[***Chapter 5* | Male Leadership**](#chapter-5--male-leadership)
+
+**LUKE’S RECORD OF THE FIRST CHRISTIAN ELDERS**
+
+[***Chapter 6* | ***Acts 11:30*** — First Jewish Christian Elders**](#chapter-6--acts-1130--first-jewish-christian-elders)
+
+[***Chapter 7* | ***Acts 14:23*** — Appointing Elders in Every Church**](#chapter-7--acts-1423--appointing-elders-in-every-church)
+
+**PAUL’S FINAL CHARGE TO THE EPHESIAN ELDERS**
+
+[***Chapter 8* | ***Acts 20:17–27*** — Paul’s Final Charge to the Ephesian Elders: Follow My Example**](#chapter-8--acts-201727--pauls-final-charge-to-the-ephesian-elders-follow-my-example)
+
+[***Chapter 9* | ***Acts 20:28–31*** — Pastor the Church of God**](#chapter-9--acts-202831--pastor-the-church-of-god)
+
+[***Chapter 10* | ***Acts 20:32–38*** — God, Finances, and Care for the Weak**](#chapter-10--acts-203238--god-finances-and-care-for-the-weak)
+
+**WHO ARE THE OVERSEERS AT PHILIPPI?**
+
+[***Chapter 11* | ***Philippians 1:1*** — Overseers and Deacons in the Church at Philippi**](#chapter-11--philippians-11--overseers-and-deacons-in-the-church-at-philippi)
+
+**THE BIBLICAL QUALIFICATIONS FOR PASTORAL OVERSEERS**
+
+[***Chapter 12* | ***1 Timothy 3:1–2*** — Above Reproach and the Husband of One Wife**](#chapter-12--1-timothy-312--above-reproach-and-the-husband-of-one-wife)
+
+[***Chapter 13* | ***1 Timothy 3:2–3*** — Sober-Minded . . . Not a Lover of Money**](#chapter-13--1-timothy-323--sober-minded----not-a-lover-of-money)
+
+[***Chapter 14* | ***1 Timothy 3:4–7*** — Managing One’s Household Well . . . Thought Well of by Outsiders**](#chapter-14--1-timothy-347--managing-ones-household-well----thought-well-of-by-outsiders)
+
+[***Chapter 15* | ***1 Timothy 3:10*** — Qualifications Demand Examination. 1 Timothy 4:14 — The Laying on of Hands by the Elders**](#chapter-15--1-timothy-310--qualifications-demand-examination-1-timothy-414--the-laying-on-of-hands-by-the-elders)
+
+**SHOWING DOUBLE HONOR**
+
+[***Chapter 16* | ***1 Timothy 5:17–18*** — Worthy of Double Honor: Elders Who Lead Well**](#chapter-16--1-timothy-51718--worthy-of-double-honor-elders-who-lead-well)
+
+[***Chapter 17* | ***1 Timothy 5:17–18*** — Worthy of Double Honor: Elders Who Labor in Preaching and Teaching**](#chapter-17--1-timothy-51718--worthy-of-double-honor-elders-who-labor-in-preaching-and-teaching)
+
+**PROTECTING AND DISCIPLINING ELDERS**
+
+[***Chapter 18* | ***1 Timothy 5:19–20*** — Protecting the Innocent; Disciplining the Guilty**](#chapter-18--1-timothy-51920--protecting-the-innocent-disciplining-the-guilty)
+
+[***Chapter 19* | ***1 Timothy 5:21–25*** — A Call to Courageous Obedience and Helps for Appointing Qualified Elders**](#chapter-19--1-timothy-52125--a-call-to-courageous-obedience-and-helps-for-appointing-qualified-elders)
+
+**THE BIBLICAL QUALIFICATIONS FOR PASTORAL ELDERS**
+
+[***Chapter 20* | ***Titus 1:5*** — Appoint Elders as I Directed**](#chapter-20--titus-15--appoint-elders-as-i-directed)
+
+[***Chapter 21* | ***Titus 1:6*** — Above Reproach as a Husband and Father**](#chapter-21--titus-16--above-reproach-as-a-husband-and-father)
+
+[***Chapter 22* | ***Titus 1:7–8*** — The Biblical Qualifications for God’s Steward**](#chapter-22--titus-178--the-biblical-qualifications-for-gods-steward)
+
+[***Chapter 23* | ***Titus 1:9–13*** — Able to Exhort in Sound Doctrine and Rebuke False Teachers**](#chapter-23--titus-1913--able-to-exhort-in-sound-doctrine-and-rebuke-false-teachers)
+
+**SHEPHERD GOD’S FLOCK IN GOD’S WAY**
+
+[***Chapter 24* | ***1 Peter 5:1–5*** — Peter’s Exhortation and Encouragement to the Elders**](#chapter-24--1-peter-515--peters-exhortation-and-encouragement-to-the-elders)
+
+**PRAYING FOR THE SICK**
+
+[***Chapter 25* | ***James 5:13–15*** — If Sick: Call the Elders of the Church**](#chapter-25--james-51315--if-sick-call-the-elders-of-the-church)
+
+**LOVING, HONORING, AND OBEYING THE ELDERS**
+
+[***Chapter 26* | ***1 Thessalonians 5:12–13*** — Esteem the Elders Highly**](#chapter-26--1-thessalonians-51213--esteem-the-elders-highly)
+
+[***Chapter 27* | ***Hebrews 13:17*** — They Keep Watch Over Your Souls**](#chapter-27--hebrews-1317--they-keep-watch-over-your-souls)
+
+[***Chapter 28* | Understanding the Relationship between the Elders and the Congregation**](#chapter-28--understanding-the-relationship-between-the-elders-and-the-congregation)
+
+[***Chapter 29* | Making Pastoral Eldership Work**](#chapter-29--making-pastoral-eldership-work)
+
+[***Chapter 30* | Summary Points**](#chapter-30--summary-points)
+
+[**Endnotes**](#endnotes)
+
+[**Author Index**](#author-index)
+
+[**Subject Index**](#subject-index)
+
+[**Scripture Index**](#scripture-index)
+
+[**Greek Word Index**](#greek-word-index)
+
+[**Acknowledgments**](#acknowledgments)
+
 ---
 
 ## Abbreviations <!-- markmap: fold -->
